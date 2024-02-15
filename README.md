@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @katiemarieek
-- 👀 I’m interested in Data Analytics
+- 👀 I’m interested in Data Analytics, Climate research and Green Fintechs
 - 🌱 I’m currently learning with the Digital Futures Academy
 - 💞️ I’m looking to collaborate on ...wait and see!
 - 📫 katiek4.kk@gmail.com
